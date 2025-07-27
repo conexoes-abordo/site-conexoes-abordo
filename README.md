@@ -1,1 +1,1 @@
-conexoes abordo oficial
+Site oficial do evento Conexões @Bordo
